@@ -1,1 +1,1 @@
-# MarkJadeGurrobat_2-2 Github Project
+# MarkJadeGurrobat_BSIT 2-2 GitHub Project
